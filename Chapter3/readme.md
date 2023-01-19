@@ -1,1 +1,1 @@
-Chapter 3
+Chapter 3: Chemical Reactions and Reaction Stoichiometry
