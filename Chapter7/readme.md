@@ -1,1 +1,1 @@
-Chapter 7
+Chapter 7: Periodic Properties of the Elements
